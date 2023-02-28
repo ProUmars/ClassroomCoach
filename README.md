@@ -1,1 +1,2 @@
 # ClassroomCoach
+Welcome to my website, where I cover a wide range of school topics to help you succeed academically. I provide clear and concise articles that cover math, science, history, and literature. I offer engaging online classes tailored to your needs, with a supportive environment for asking questions, feedback, and connecting with peers. Let's achieve your academic goals together - join me today!
